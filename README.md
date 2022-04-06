@@ -1,6 +1,8 @@
 # ConnorsFirst_RepoXRTerra
-four
-three
-two
-one
-zero
+we 
+all
+live
+in
+a
+yellow
+sub
