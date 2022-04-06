@@ -1,8 +1,10 @@
 # ConnorsFirst_RepoXRTerra
-we 
-all
-live
-in
-a
-yellow
-sub
+I
+can't
+talk
+right
+now
+it
+is
+class
+time
